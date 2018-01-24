@@ -2,4 +2,4 @@
 
 Esta saga cuenta las historia del mejor hacker del mundo.
 
-**Leandro Acevedo**
+**Leandro Acevedo**, Larry Ploter Lover
